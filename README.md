@@ -43,7 +43,7 @@
 ## Notes & Tweaks
 
 * **Serving variety?** Keep every cube moving; pull thicker lean cubes the instant they bounce back; leave smaller fatty ones one extra flip for “beef-bacon” bites.  
-* **Pepper burns above ~350 °C.** Add it after cooking or keep your final sear gentle if you want pepper bark.  
+* **Pepper and garlic burns on high heat.** Add them near the end of the cooking process if you want them on the steak cubes.  
 * **Frozen starts:** expect a longer first sear for crust plus a longer cool so the interior is sliceable. Everything else is identical.
 
 ---
