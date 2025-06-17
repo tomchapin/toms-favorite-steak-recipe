@@ -12,7 +12,7 @@
 |------|-------------|----------------|
 | **1. Big-Chunk Sear** | Drop an unseasoned steak (any starting temp) onto a screaming-hot carbon-steel or cast-iron pan. Brown every surface hard and fast. | Builds maximum Maillard crust without over-cooking the interior. |
 | **2. Cool Down** | Move steak to a board. Let it sit only until it’s cool enough to cut cleanly. <br>• If the steak began frozen → longer cool so the center fully thaws. <br>• Fridge-cold or room-temp → short pause, just to stop surface sizzling. | Interior relaxes; safe to handle and trim. |
-| **3. Cube & Trim** | Cut into bite-size cubes (≈¾–1 in). Yank out silver skin, sinew, big hard-fat seams. | Guarantees zero unpleasant chew. |
+| **3. Cube & Trim** | Cut into bite-size cubes (≈¾–1 in). Trim any silver skin, sinew, big hard-fat seams. | Guarantees zero unpleasant chew. |
 | **4. Season** | Salt the cubes (pepper later if you like). | Seasoning happens once there’s no moisture pull problem. |
 | **5. Cube Sear** | Same pan, still blazing. Work hibachi-style: brief sit → scrape/flip/tumble → repeat until **all faces** brown. Pull juicy cubes first, let fattier/smaller cubes crisp a touch longer if you like variety. | Second Maillard pass plus final doneness—everything edible, nothing bland. |
 | **6. Eat** | Plate immediately or let cubes rest a minute if you want carry-over. | Flavor is highest right out of the pan; rest only if you prefer it. |
